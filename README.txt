@@ -1,0 +1,1 @@
+Attractiveness of investment project
